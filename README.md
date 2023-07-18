@@ -1,1 +1,1 @@
-# supera challenge
+# Supera Challenge
